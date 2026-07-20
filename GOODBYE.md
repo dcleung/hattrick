@@ -1,0 +1,1 @@
+# RIP Hattrick\n\nThe World Cup is over. Time to hang up the boots.
